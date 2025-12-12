@@ -1,0 +1,1 @@
+Team 4099 is a Poolesville MD based FIRST Robotics team that has been actively competing since its rookie year in 2012<img width="720" height="701" alt="image" src="https://github.com/user-attachments/assets/f68fdf74-fb7b-439d-b3e2-6bcab0aa3ae8" />
